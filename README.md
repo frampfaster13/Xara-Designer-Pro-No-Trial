@@ -1,0 +1,1 @@
+# Xara-Designer-Pro-No-Trial
